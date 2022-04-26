@@ -3,8 +3,8 @@
 ## People
 1. [Dr. Mark Hyman](https://drhyman.com/)
 2. [Dr. Steven Gundry](https://drgundry.com/)
-3. [Dr. Will Bulsiewicz | The Gut Health MD](https://theplantfedgut.com/)
-4. [Dr. Rangan Chatterjee](https://drchatterjee.com/) [Youtube Channel](https://www.youtube.com/channel/UCDnwlb3IQDPJtFysPUJbDFQ/)
+3. [Dr. Will Bulsiewicz: The Gut Health MD](https://theplantfedgut.com/)
+4. [Dr. Rangan Chatterjee](https://drchatterjee.com/) | [Youtube Channel](https://www.youtube.com/channel/UCDnwlb3IQDPJtFysPUJbDFQ/)
 
 ## Videos
 ### Doctor In the House | Only Human
