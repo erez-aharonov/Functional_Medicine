@@ -5,8 +5,9 @@
 2. [Dr. Mark Hyman](https://drhyman.com/)
 3. [Dr. Steven Gundry](https://drgundry.com/)
 4. [Dr. Will Bulsiewicz: The Gut Health MD](https://theplantfedgut.com/)
-5. [Dr. Rangan Chatterjee](https://drchatterjee.com/) | [Youtube Channel](https://www.youtube.com/channel/UCDnwlb3IQDPJtFysPUJbDFQ/)
-6. [Dr. Will Cole](https://drwillcole.com/)
+5. [Dr. William Li](https://drwilliamli.com/)
+6. [Dr. Rangan Chatterjee](https://drchatterjee.com/) | [Youtube Channel](https://www.youtube.com/channel/UCDnwlb3IQDPJtFysPUJbDFQ/)
+7. [Dr. Will Cole](https://drwillcole.com/)
 
 ## Videos
 ### Doctor In the House | Only Human
