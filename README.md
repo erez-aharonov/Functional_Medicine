@@ -13,6 +13,8 @@
 ### Doctor In the House | Only Human
 1. [Video #1](https://www.youtube.com/watch?v=j9HPSP7QwPU)
 2. [Video #2](https://www.youtube.com/watch?v=6T-qNfBFdig)
-
 ### General
 1. [Slim, Shiny, Sexy; Microbes and Your Health | Dr. Susan Erdman | TEDxBermuda](https://www.youtube.com/watch?v=-tI9ve6Ie4M)
+
+## Labs
+1. [The Erdman Laboratory at MIT](https://erdmanlab.us/index.php)
