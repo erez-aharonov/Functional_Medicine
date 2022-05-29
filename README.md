@@ -8,6 +8,8 @@
 5. [Dr. William Li](https://drwilliamli.com/)
 6. [Dr. Rangan Chatterjee](https://drchatterjee.com/) | [Youtube Channel](https://www.youtube.com/channel/UCDnwlb3IQDPJtFysPUJbDFQ/)
 7. [Dr. Will Cole](https://drwillcole.com/)
+8. [Dr. Joel Fuhrman](https://www.drfuhrman.com/)
+9. [Dr. Shawn Talbott](https://doctalbott.com/)
 
 ## Videos
 ### Doctor In the House | Only Human
