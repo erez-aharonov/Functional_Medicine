@@ -18,6 +18,7 @@
 2. [Video #2](https://www.youtube.com/watch?v=6T-qNfBFdig)
 ### General
 1. [Slim, Shiny, Sexy; Microbes and Your Health | Dr. Susan Erdman | TEDxBermuda](https://www.youtube.com/watch?v=-tI9ve6Ie4M)
+2. [Why is the Science of Nutrition Ignored in Medicine? | T. Colin Campbell | TEDxCornellUniversity](https://www.youtube.com/watch?v=tmWoWOM16uE&ab_channel=TEDxTalks)
 
 ## Labs
 1. [The Erdman Laboratory at MIT](https://erdmanlab.us/index.php)
