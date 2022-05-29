@@ -2,14 +2,15 @@
 
 ## People
 1. [Dr. Jeffrey Bland](https://jeffreybland.com/)
-2. [Dr. Mark Hyman](https://drhyman.com/)
-3. [Dr. Steven Gundry](https://drgundry.com/)
-4. [Dr. Will Bulsiewicz: The Gut Health MD](https://theplantfedgut.com/)
-5. [Dr. William Li](https://drwilliamli.com/)
-6. [Dr. Rangan Chatterjee](https://drchatterjee.com/) | [Youtube Channel](https://www.youtube.com/channel/UCDnwlb3IQDPJtFysPUJbDFQ/)
-7. [Dr. Will Cole](https://drwillcole.com/)
-8. [Dr. Joel Fuhrman](https://www.drfuhrman.com/)
-9. [Dr. Shawn Talbott](https://doctalbott.com/)
+2. [Thomas Colin Campbell](https://nutritionstudies.org/)
+3. [Dr. Mark Hyman](https://drhyman.com/)
+4. [Dr. Steven Gundry](https://drgundry.com/)
+5. [Dr. Will Bulsiewicz: The Gut Health MD](https://theplantfedgut.com/)
+6. [Dr. William Li](https://drwilliamli.com/)
+7. [Dr. Rangan Chatterjee](https://drchatterjee.com/) | [Youtube Channel](https://www.youtube.com/channel/UCDnwlb3IQDPJtFysPUJbDFQ/)
+8. [Dr. Will Cole](https://drwillcole.com/)
+9. [Dr. Joel Fuhrman](https://www.drfuhrman.com/)
+10. [Dr. Shawn Talbott](https://doctalbott.com/)
 
 ## Videos
 ### Doctor In the House | Only Human
