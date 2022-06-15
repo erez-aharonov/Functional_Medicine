@@ -11,6 +11,7 @@
 8. [Dr. Will Cole](https://drwillcole.com/)
 9. [Dr. Joel Fuhrman](https://www.drfuhrman.com/)
 10. [Dr. Shawn Talbott](https://doctalbott.com/)
+11. [Dr. Richard J. Johnson](https://drrichardjohnson.com/)
 
 ## Videos
 ### Doctor In the House | Only Human
